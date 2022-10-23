@@ -15,6 +15,7 @@
 ##### Ready to step my foot in Canada Data Analysis Industry with my Indian Work Experience
 ### 🙌🏻 Connect with Me
 [LinkedIn](linkedin.com/in/manisha-rehal-1a64aa170)
+[Email](mailto:manisharehal1319@gmail.com?subject=[GitHub]%20Source%20manisha%20rehal)
 
 
 
